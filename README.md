@@ -5,6 +5,8 @@
 ## **Takım Logosu**
 
 ![Logo](https://github.com/user-attachments/assets/d3656d39-534d-46da-90d1-a48268980995)
+![image](https://github.com/user-attachments/assets/05951c1f-476e-457b-8a6f-0883cba6e7a7)
+
 
 ## Takım Elemanları
 
